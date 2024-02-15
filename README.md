@@ -3,7 +3,7 @@ Estudiante Universitario
 
 Ambato - Ecuador <img src='https://user-images.githubusercontent.com/105802908/180677369-53f028c6-b299-4346-80a9-6493e95599c1.png' height='20'>&nbsp; <br>
 ## Acerca de:
-Soy un estudiante en la Universidad Técnica de Ambato, actualmente cuento con 23 años y me siento muy afortunado de haber logrado unos cuantos objetivos a lo largo de mi vida.
+Soy un estudiante en la Universidad Técnica de Ambato, actualmente cuento con 25 años y me siento muy afortunado de haber logrado unos cuantos objetivos a lo largo de mi vida.
 Tengo una expectativa muy grande para el futuro de mi carrera y con muchas ganas de aprender y progresar.
 
 Si hay algo que me caracteriza es que me involucro al 100% en todo lo que hago. Soy trabajador, perfeccionista e inconformista. Tengo un estilo de trabajo directo y creativo, y pongo toda la energía que me aporta trabajar en aquello que me entusiasma como es mi carrera Universitaria y todo lo referente a ella.
